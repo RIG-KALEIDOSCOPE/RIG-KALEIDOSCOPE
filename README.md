@@ -30,14 +30,12 @@
 </div>
 
 <p align="center">
-  I love my <a href="https://example.com" style="color: blue; text-decoration: none;">mama</a> /p (shes online once every blue moon. /lh)
+  I love my <a href="https://en.pronouns.page/enzalviya" style="color: blue; text-decoration: none;">mama</a> /p (shes online once every blue moon. /lh)
 </p>
 
 
 <p align="center">
-  <a href="https://straw.page/cashiercas" style="color: blue; text-decoration: none; padding-bottom: 3px; border-bottom: 2px solid blue; margin-right: 20px;">strawpage　　</a>
-  <img src="https://64.media.tumblr.com/2716c780c28ffc7c4ba26b7ac7154d0e/5e551e23047cfa5d-99/s75x75_c1/40688dd88a376cb7ccd8e1d1ae65ffa9e9de0401.gifv" alt="image 1" style="width: 30px; height: 30px; vertical-align: middle; margin-right: 20px;">
-  <a href="rentry.co/cashier31" style="color: blue; text-decoration: none; padding-bottom: 3px; border-bottom: 2px solid blue; margin-right: 20px;">rentry　　</a>
+  <a href="https://rentry.co/cashier31" style="color: blue; text-decoration: none; padding-bottom: 3px; border-bottom: 2px solid blue; margin-right: 20px;">rentry　　</a>
   <img src="https://64.media.tumblr.com/2716c780c28ffc7c4ba26b7ac7154d0e/5e551e23047cfa5d-99/s75x75_c1/40688dd88a376cb7ccd8e1d1ae65ffa9e9de0401.gifv" alt="image 2" style="width: 30px; height: 30px; vertical-align: middle; margin-right: 20px;">
   <a href="https://example3.com" style="color: blue; text-decoration: none; padding-bottom: 3px; border-bottom: 2px solid blue;">Link 3　　</a>
 </p>
