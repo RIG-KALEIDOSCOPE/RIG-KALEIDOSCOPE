@@ -1,1 +1,1 @@
-![lal](https://64.media.tumblr.com/5c075a967b63e79f0632b473e8a56186/16905882839f457b-d4/s2048x3072/97076603bbaebec84c903d425e9f5cf532d48364.pnj)
+![lal](https://files.catbox.moe/hjyv9t.png)
