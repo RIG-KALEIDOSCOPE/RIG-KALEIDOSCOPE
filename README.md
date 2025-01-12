@@ -5,9 +5,6 @@
 
 ![lal](https://files.catbox.moe/hjyv9t.png)
 
-<p align="center">
-  <img src="https://files.catbox.moe/tp1id8.gif" alt="dancing" width="200"/>
-</p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/aa1e432b350f79b1f9edc11ef7454bac/4bd9f0e88cc96821-ee/s640x960/5e068d7dadbda8b9b50b750d9fc7f99cfac00e45.pnj" alt="dancing" width="4000"/>
@@ -26,7 +23,8 @@
 </div>
 
 <div align="center">
-  <p><em> 𐭩ྀིྀི　Brandon / Beren / Cashier / Interruption Virtuoso ⠀ ུ۪࿑ྀ </em></p>
+  <p><em> 𐭩ྀིྀི　Brandon / Beren / Cashier / Interruption Virtuoso . though, depends on whos fronting.
+    Ask me whos fronting! (Please.)⠀ ུ۪࿑ྀ </em></p>
 </div>
 
 <p align="center">
