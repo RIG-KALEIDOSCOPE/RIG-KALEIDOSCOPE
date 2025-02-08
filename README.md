@@ -9,9 +9,22 @@
   <img src="https://files.catbox.moe/n5temo.png" width="100px" />
 </div>
 
-hi so like im remaking this
+<div align="center"> 
+🌷
+  <div/>
 
-I JUST WANNABEAT MY FUCKING MEAT!!!!!!!!!!! 
-* i  make freaky jokes um tell me if uncomfy HELOP
-ım hyperfıxated on roblox in general!!!drolls..mnnnnhhggg roblox....
+<div align="center">
+
+<div align="center">
+  
+  <div align="center">
+
+𓏵 ⠀⠀⠀﹒ ⠀⠀cashier⠀⠀⠀╱⠀⠀⠀beren⠀⠀╱ rig⠀⠀  𓂂  
+⠀⠀⠀⠀xe⠀ she⠀⠀⠀⠀⸺⠀⠀⠀⠀DID/OSDD system⠀ ⠀⠀𓎠  
+adults thin ice⠀ any int ⠀⠀⠀ minor ⠀⠀⠀c+h welcomed ⠀, iwc at all times⠀ ⠀⠀⠀⨾
+
+</div>
+
+
+
 
