@@ -1,4 +1,4 @@
-![divider start](https://files.catbox.moe/qq4ixi.png)
+![divider start](https://files.catbox.moe/y36rrs.png)
 
 
 
