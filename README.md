@@ -25,6 +25,8 @@ adults thin ice⠀ any int ⠀⠀⠀ minor ⠀⠀⠀c+h welcomed ⠀, iwc at all
 
 </div>
 
+![dividerend](https://files.catbox.moe/cjawp9.png)
+
 
 
 
