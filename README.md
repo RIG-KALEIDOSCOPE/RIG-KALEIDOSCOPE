@@ -9,12 +9,11 @@
   <img src="https://files.catbox.moe/n5temo.png" width="100px" />
 </div>
 
-<div align="center">
-[ATABOOK](https://kaleidoscope.atabook.org) [RENTRY](https://rentry.co/rig-kaleidoscope)
 
 <p align="center">
   <a href="https://kaleidoscope.atabook.org">SIGN MY ATABOOK</a>
   <a href="https://rentry.co/rig-kaleidoscope">RENTRY</a>
+  <a href="https://en.pronouns.page/@metaphorisma">PRONOUNS PAGE (PLEASE READ THIS TO KNOW ME PROPERLY.)</a>
 </p>
 
 
